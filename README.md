@@ -1,1 +1,1 @@
-# gdscasecbe
+# GDSC Amrita :D
