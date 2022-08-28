@@ -1,1 +1,1 @@
-# GDSC Amrita :D
+# GDSC ASE CBE :D
